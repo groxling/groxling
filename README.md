@@ -10,4 +10,6 @@ i link this gthub to all my grox skins :) these grox skins are me  vvvv
 
 ![profile banner](https://www.image2url.com/r2/default/gifs/1788684149804-db75bbc3-66c6-41b5-9aaa-15a76d438765.gif)
 
+![profile banner](https://www.image2url.com/r2/default/gifs/1791196745933-41531e7d-4b9e-4347-ad0e-2266eee84f08.gif)
+
 follow my main [github](https://github.com/oversleptt/) ok?
